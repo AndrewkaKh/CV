@@ -1,1 +1,1 @@
-My CV in English
+My CV in Russian
